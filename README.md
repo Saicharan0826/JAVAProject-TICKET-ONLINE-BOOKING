@@ -3,11 +3,11 @@
 
 - Hi I am working **on Java-Projects**
 
-- 🤝 I’m looking for help with **Ajob as Java Back end developer**
+- 🤝 I’m looking for help with ** A job as Java Back end developer**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Saicharan0826](https://github.com/Saicharan0826)
 
-- 📫 How to reach me **charanabhiyadav@hmail.com**
+- 📫 How to reach me **charanabhiyadav@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1MZ5uZ1Ik3R7dPju1ki6GslMxNMde85Bq/view?usp=drive_link](https://drive.google.com/file/d/1MZ5uZ1Ik3R7dPju1ki6GslMxNMde85Bq/view?usp=drive_link)
 
